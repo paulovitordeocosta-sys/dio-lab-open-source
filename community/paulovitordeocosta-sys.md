@@ -1,1 +1,1 @@
-Sou formado em Automação industrial e pretendo migrar pro ramo de programação.
+Sou formado em Automação industrial e pretendo migrar pro ramo de programação. E PRETENDO MIGRAR PARA AREA DE PROGRAMAÇÃO
